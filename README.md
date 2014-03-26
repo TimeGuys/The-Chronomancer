@@ -1,4 +1,4 @@
 The-Chronomancer
 ================
 
-A game I am making with Ood1
+A game XenocideTimeGuys and The-Gambler!
